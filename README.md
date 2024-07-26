@@ -1,2 +1,2 @@
-# Gravitix
-My first personal dev project !!! Amazing music stuff coming 🎸🕸️🎻
+# Star Seeker
+My first personal dev project !!! Amazing music stuff coming 👁️✨
